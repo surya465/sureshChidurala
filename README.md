@@ -1,2 +1,2 @@
-# sureshChidurala
+# SureshChidurala
 Suresh's Resume
